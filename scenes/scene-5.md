@@ -57,4 +57,5 @@ Spojení se samo ukončilo.
 Sirkomodul se odpojil a zůstal ležet vedle ní. Dívka ho nezvedla. Jen seděla a dívala se do prázdna.  
 Svět kolem ní ztratil ostrost, i hloubku. Jako by už nepatřila ani do něj, ani do těch vzpomínek.
 
-Jeden jí zbýval. A ještě se nerozhodla, co s ním.
+Poslední sirkomodul držela v ruce. Jeho váhu vnímala slabě –  
+jako by už i on věděl, že bude poslední, komu ještě něco dovolí cítit.
